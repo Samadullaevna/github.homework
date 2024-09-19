@@ -1,0 +1,1 @@
+Bu mening Githubdagi birinchi vazifam
